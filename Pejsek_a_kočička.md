@@ -7,4 +7,4 @@ Dort dali chladit na zápraží. Mezitím soused, který na nì neustále bonzoval kvùl
 K uvaøené kávì si chtìla naše zvíøátka ukrojit porci dortu, avšak na zápraží nic nenašli. Zato od sousedù zaslechli pøerývaný smích doplnìný bolestným naøíkáním. Sousedovi byla pøivolána lékaøská pomoc s barevnou hudbou, která ho odvezla do nejbližšího zdravotnického zaøízení. Po propuštìní z nemocnice Ještì dostal pokutu za užívání psychotropních a omamných látek a probaèní a mediaèní službou mu byl uložen trest v podobì 50 hodin, které musel odpracovat v nejbližším domovì seniorù.
 Na tomto pøípadu vidíme, že bonzovat a krást se nevyplácí.
 
-Pejsek s koèièkou vylepšují dort: ![zde je obrázek](c:/nami/kj/pejsek_a_kocicka.gif)
+Pejsek s koèièkou vylepšují dort: ![zde je obrázek](pejsek_a_kocicka.gif)
